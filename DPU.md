@@ -5,13 +5,13 @@ Disciplina: Inovação Social e Científica
 
 # Integrantes: 
  
-  ** Emilly Firmino 
+  **  Emilly Firmino 
  
-  ** Aldiele Laisa 
+  **  Aldiele Laisa 
  
-  ** Kamily Victoria
+  **  Kamily Victoria
 
-  ** Anny Caroline
+  **  Anny Caroline
 
 Data da Pesquisa de Campo: 17/03
 
